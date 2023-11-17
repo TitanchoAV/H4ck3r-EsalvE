@@ -7,5 +7,4 @@ Here are some ideas to get you started:
 -->
 
 - 🌱 I’m currently learning how 2 program 🌱
-- 🏀 Basketball lover 🏀
 - 🌩️ Tormenta de facha 🌩️
